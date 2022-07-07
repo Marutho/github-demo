@@ -6,3 +6,4 @@ public for testing git control
 ##Me como un donut
 
 ##AÑADI UN COPIRAIT
+si descargas esto ilegalmente , me debes 500 euro
